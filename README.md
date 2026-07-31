@@ -1,1 +1,1 @@
-# Insect-Personalized-Cursors 🖱️🪲🦋
+# Insect-Personalized-Cursors ✨🪲🦋
